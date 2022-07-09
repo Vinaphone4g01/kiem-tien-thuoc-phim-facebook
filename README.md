@@ -1,2 +1,4 @@
 # kiem-tien-thuoc-phim-facebook
 Giải đáp: Thước phim Facebook có kiếm tiền được không?
+<p style="text-align: justify;"><a href="https://blogvn.org/thuoc-phim-facebook-co-kiem-tien-khong.html"><strong>Thước phim trên Facebook kiếm được tiền</strong> <strong>không</strong></a> chính là vấn đề đang được nhiều bạn trẻ quan tâm. Thước phim chính là những video ngắn mà bạn tạo nên được đăng tải nhằm thu hút người dùng Facebook. Thông thường, bạn sẽ được bật chức năng kiếm tiền trên TikTok khi đủ điều kiện. Khi đó việc sử dụng mạng xã hội nãy sẽ thu được lợi nhuận cho cá nhân.</p>
+Tuy nhiên, với Facebook có tính năng kiếm tiền bằng Reels thì chưa có câu giải đáp chính xác. Hãy nhanh chóng cùng <a href="http://blogvn.org" target="_blank" rel="noopener">blogvn.org</a> tìm hiểu chi tiết trong bài sau.
